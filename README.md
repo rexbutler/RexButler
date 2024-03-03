@@ -1,16 +1,40 @@
-### Hi there 👋
+# Rex Butler #
 
-<!--
-**rexbutler/RexButler** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Career ##
 
-Here are some ideas to get you started:
+[My LinkedIn Profile](https://www.linkedin.com/in/rexbutler/) 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## Coding, Software Quality Assurance and Testing ##
+
+[My StackOverflow Profile](https://stackoverflow.com/users/431357/rex-butler)
+
+[My favorite Meetup group](https://www.meetup.com/qa-at-the-point/) QA at the Point
+
+[My Exercism Profile](https://exercism.org/profiles/rexbutler/solutions) Excellent coding problems
+
+## Mathematics ##
+
+[The University of Utah Mathematics Department](https://math.utah.edu)
+
+[My Mathematics Stackexchange Profile](https://math.stackexchange.com/users/6455/rex-butler)
+
+[My Mathoverflow Profile](https://mathoverflow.net/users/10110/rex-butler)
+
+## Schooling ##
+
+[The University of Utah](https://www.utah.edu), Bachelor of Science in Mathematics
+
+[The University of Utah](https://www.utah.edu), Masters of Science in Mathematics
+
+[Viewmont High School](https://vhs.davis.k12.ut.us/), High School Diploma
+
+[Seoul Foreign School](https://www.seoulforeign.org/), Pre-kindergarten (A childhood special memory)
+
+## Social Media and Discussion ##
+
+[My Twitter Profile](https://twitter.com/RexButler10)
+
+## Chess ##
+
+[My Chess.com Profile](https://www.chess.com/member/rexbutler)
+
