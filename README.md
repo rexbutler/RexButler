@@ -38,3 +38,33 @@
 
 [My Chess.com Profile](https://www.chess.com/member/rexbutler)
 
+## Namesakes ## 
+
+[Rex Lamont Butler - Attorney and Counselor at Law](https://www.thehistorymakers.org/biography/rex-butler)
+
+[Rex Butler - Professor, Art History & Theory](https://www.monash.edu/mada/art/people/rex-butler)
+
+[Rex D. Butler - Professor of Church History and Patristics](https://www.nobts.edu/faculty/butler-rex.html)
+
+[Rex Butler - Soma Therapist / Soma Trainer](https://www.rexbutler.com/my-story)
+
+[Rex Butler - Water Polo Athlete](https://usctrojans.com/sports/mens-water-polo/roster/rex-butler/4680)
+
+## Family ##
+
+### Father ###
+
+[Father: David Conwey Butler](https://www.familysearch.org/tree/person/about/LX2Z-4WV)
+
+[Paternal Grandfather: Wayne Stephens Butler](https://www.familysearch.org/tree/person/about/KWC7-6QS)
+
+[Paternal Grandmother: Phyllis Jensen Butler Swenson](https://www.familysearch.org/tree/person/about/KWC7-6QQ)
+
+### Mother ###
+
+[Mother: Camille Carter Butler](https://www.familysearch.org/tree/pedigree/landscape/LX2Z-4WZ) [Obituary](https://www.myers-mortuary.com/obituary/Camille-Butler)
+
+[Maternal Grandmother: Camille Beth Neuffer Carter](https://www.familysearch.org/tree/person/about/LX2Z-4WZ) [Obituary](https://www.legacy.com/us/obituaries/hjnews/name/camille-carter-obituary?id=15497104)
+
+[Maternal Grandfather: Mark Johnson Carter](https://www.familysearch.org/tree/person/about/KWC7-6QT)
+
