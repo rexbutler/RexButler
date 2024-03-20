@@ -65,7 +65,11 @@
 
 [My sister: Carol Geneva Butler Branham](https://www.myers-mortuary.com/obituary/Carol-Butler)
 
-[My cousin: Mark Thomas Carter, Navy Seal](https://www.google.com/search?q=navy+seal+mark+thomas+carter)
+[My cousin: Mark Thomas Carter, Navy Seal](https://www.google.com/search?q=navy+seal+mark+thomas+carter) 
+
+&nbsp;&nbsp;&nbsp;&nbsp;[**Book:** Badger: What He Died For: In Memory of SEAL Mark T. Carter, SOC, USN](https://www.amazon.com/Badger-What-Died-Memory-Carter/dp/1480941581/)<br>
+&nbsp;&nbsp;&nbsp;&nbsp;I strongly recommend this book about Mark
+
 
 ### Namesakes / Google Search Buddies ###
 
