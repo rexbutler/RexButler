@@ -72,6 +72,8 @@
 &nbsp;&nbsp;&nbsp;&nbsp;I strongly recommend this book about Mark
 -->
 
+<!--
+
 ### Namesakes / Google Search Buddies ###
 
 [Rex Lamont Butler - Attorney and Counselor at Law](https://www.thehistorymakers.org/biography/rex-butler)
@@ -84,4 +86,4 @@
 
 [Rex Butler - Water Polo Athlete](https://usctrojans.com/sports/mens-water-polo/roster/rex-butler/4680)
 
-
+-->
