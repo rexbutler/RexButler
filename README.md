@@ -19,11 +19,9 @@
 
 ## Mathematics ##
  
-[The University of Utah Mathematics Department](https://math.utah.edu) My Alma Mater Department
-
-[My Mathematics Stackexchange Profile](https://math.stackexchange.com/users/6455/rex-butler)
-
-[My Mathoverflow Profile](https://mathoverflow.net/users/10110/rex-butler)
+* [My Mathoverflow Profile](https://mathoverflow.net/users/10110/rex-butler)
+* [My Mathematics Stackexchange Profile](https://math.stackexchange.com/users/6455/rex-butler)
+* [The University of Utah Mathematics Department](https://math.utah.edu) My Alma Mater Department
 
 ## Schooling ##
 
