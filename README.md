@@ -35,6 +35,13 @@
 
 [Seoul Foreign School, South Korea](https://www.seoulforeign.org/), Pre-kindergarten (A childhood special memory)
 
+## World ##
+* [South Korea](https://en.wikipedia.org/wiki/South_Korea)
+* * [Seoul, South Korea](https://en.wikipedia.org/wiki/Seoul)
+* [United State of America](https://en.wikipedia.org/wiki/United_States)
+* * [Utah](https://en.wikipedia.org/wiki/Utah)
+* * * [Salt Lake City, Utah](https://en.wikipedia.org/wiki/Salt_Lake_City)
+
 ## Social Media and Discussion ##
 
 [My Twitter Profile](https://twitter.com/RexButler10)
