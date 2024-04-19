@@ -35,10 +35,10 @@
 
 ## World ##
 * [South Korea](https://en.wikipedia.org/wiki/South_Korea)
-* * [Seoul, South Korea](https://en.wikipedia.org/wiki/Seoul)
+* * [Seoul](https://en.wikipedia.org/wiki/Seoul)
 * [United State of America](https://en.wikipedia.org/wiki/United_States)
 * * [Utah](https://en.wikipedia.org/wiki/Utah)
-* * * [Salt Lake City, Utah](https://en.wikipedia.org/wiki/Salt_Lake_City)
+* * * [Salt Lake City](https://en.wikipedia.org/wiki/Salt_Lake_City)
 
 ## Social Media and Discussion ##
 
