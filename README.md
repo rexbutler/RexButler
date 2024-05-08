@@ -46,7 +46,9 @@
 
 ## Chess ##
 
-[My Chess.com Profile](https://www.chess.com/member/rexbutler)
+[Wikipedia on Chess](https://en.wikipedia.org/wiki/Chess)
+
+[Utah Chess IRL](http://wheretoplaychess.info/Stateclubs/Utah)
 
 ## Personal ##
 
