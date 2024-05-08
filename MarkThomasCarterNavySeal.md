@@ -2,7 +2,7 @@
 
 **Full name: Mark Thomas Carter**
 
-![Mark in Uniform](https://s3.amazonaws.com/static.militarytimes.com/thefallen/carter_mark_t_lg.jpg)
+![Mark in Uniform](./MarkThomasCarter.jpg)
 
 [Mark's Father's Book:   Badger: What He Died For: In Memory of SEAL Mark T. Carter, SOC, USN](https://www.amazon.com/Badger-What-Died-Memory-Carter/dp/1480941581/)<br>
 I strongly recommend this book about Mark
