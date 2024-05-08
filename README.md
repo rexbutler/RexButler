@@ -68,7 +68,7 @@
 
 ### In Memory ###
 
-[My sister: Carol Geneva Butler Branham](https://www.myers-mortuary.com/obituary/Carol-Butler) Obituary
+[My sister: Carol Geneva Butler Branham](./CarolGenevaButler.md)
 
 [My cousin: Mark Thomas Carter, Navy Seal](MarkThomasCarterNavySeal.md) 
 
