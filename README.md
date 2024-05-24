@@ -73,19 +73,3 @@
 [My sister: Carol Geneva Butler Branham](./CarolGenevaButler.md)
 
 [My cousin: Mark Thomas Carter, Navy Seal](MarkThomasCarterNavySeal.md) 
-
-<!--
-
-### Namesakes / Google Search Buddies ###
-
-[Rex Lamont Butler - Attorney and Counselor at Law](https://www.thehistorymakers.org/biography/rex-butler)
-
-[Rex Butler - Professor, Art History & Theory](https://www.monash.edu/mada/art/people/rex-butler)
-
-[Rex D. Butler - Professor of Church History and Patristics](https://www.nobts.edu/faculty/butler-rex.html)
-
-[Rex Butler - Soma Therapist / Soma Trainer](https://www.rexbutler.com/my-story)
-
-[Rex Butler - Water Polo Athlete](https://usctrojans.com/sports/mens-water-polo/roster/rex-butler/4680)
-
--->
