@@ -72,4 +72,3 @@
 
 [My sister: Carol Geneva Butler Branham](./CarolGenevaButler.md)
 
-[My cousin: Mark Thomas Carter, Navy Seal](MarkThomasCarterNavySeal.md) 
