@@ -9,6 +9,5 @@ I strongly recommend this book about Mark
 
 [Military Times: Navy Chief Special Warfare Operator Mark T. Carter](https://thefallen.militarytimes.com/navy-chief-special-warfare-operator-mark-t-carter/3249859)
 
-[Latest Google Search Resources on Mark](https://www.google.com/search?q=navy+seal+mark+thomas+carter) 
+[Latest Google Search Resources on Mark](https://www.google.com/search?q=navy+seal+mark+thomascater) 
 
-<!-- Rex: Learning Markdown -->
